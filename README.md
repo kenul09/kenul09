@@ -1,4 +1,3 @@
+<img width="1672" height="941" alt="8d61984d-0f23-4089-b741-d988c31403d7" src="https://github.com/user-attachments/assets/123ae7ac-790f-4e1b-b8ae-9f101a692b55" />
 
-
-Uploading Frontend_developer_portfolio_ani…_20261013233110.mp4…
 
